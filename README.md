@@ -4,7 +4,7 @@
 
 <br>
 
-<samp>20 y.o. developer exploring the boundaries of AI</samp>
+<samp>22 y.o. developer exploring the boundaries of AI</samp>
 
 <br><br>
 
